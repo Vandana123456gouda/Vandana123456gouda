@@ -11,6 +11,6 @@
      linkedin:https: //www.linkedin.com/in/vandana-mohan-gouda-857915193/
      email:vandanagouda060@gmail.com
 - 😄 Pronouns: she/her
--⚡ Fun fact: crazy towards learn new things!!!
+- ⚡ Fun fact: crazy towards learn new things!!!
 
 ******************************************************************************************
